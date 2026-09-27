@@ -1,4 +1,4 @@
-˚₊‧꒰ა ♡ ໒꒱ ‧₊˚ Hola, soy Male
+˚₊‧꒰ა ♡ ໒꒱ ‧₊˚ Hola, soy MALE
 
 "entre teclas, libros y código ✦ aprendiendo algo nuevo todos los días"
 
