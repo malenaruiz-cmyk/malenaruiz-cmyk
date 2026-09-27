@@ -1,4 +1,4 @@
-˚₊‧꒰ა ♡ ໒꒱ ‧₊˚ Hola, soy MALE
+˚₊‧꒰ა ♡ ໒꒱ ‧₊˚ Hola, soy Malena
 
 "entre teclas, libros y código ✦ aprendiendo algo nuevo todos los días"
 
@@ -12,7 +12,7 @@
 
 🩵 Sobre mí
 
-Soy Male, estudiante y amante de la música, el arte y la tecnología.
+Soy estudiante y amante de la música, el arte y la tecnología.
 
 Actualmente estoy empezando mi camino en programación, aprendiendo poco a poco y experimentando con distintos lenguajes y herramientas. Me gusta crear cosas, descubrir cómo funcionan y aprender de cada proyecto.
 
