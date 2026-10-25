@@ -1,13 +1,4 @@
 ˚₊‧꒰ა ♡ ໒꒱ ‧₊˚ Hola, soy Malena
-
-"entre teclas, libros y código ✦ aprendiendo algo nuevo todos los días"
-
-♡ Estudiante de 5.º año del secundario
-♡ Aprendiendo programación y desarrollo web
-♡ Pianista y estudiante de música 🎹
-♡ Me gustan el arte, los libros y aprender cosas nuevas 📖
-♡ Explorando mi lado creativo con diseño y Canva ✦
-
 ---
 
 🩵 Sobre mí
